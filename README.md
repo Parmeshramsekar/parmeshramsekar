@@ -1,3 +1,5 @@
+![PSX_20201215_123657](https://user-images.githubusercontent.com/93251792/142984735-5ad736fc-e116-4572-a7db-3708d002caca.jpg)
+
 ### Hi there 👋
 
 I'm a 1st year student pursuing Bachelor's in Electronics and communication from RNS institute of technology  (I, I'm a
