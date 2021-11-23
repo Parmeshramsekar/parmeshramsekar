@@ -1,4 +1,5 @@
-![PSX_20201215_123657](https://user-images.githubusercontent.com/93251792/142984735-5ad736fc-e116-4572-a7db-3708d002caca.jpg)
+![WhatsApp Image 2021-11-23 at 1 31 00 PM](https://user-images.githubusercontent.com/93251792/142988640-7864c977-322a-4d78-b6eb-fe077421f6a0.jpeg)
+
 
 ### Hi there 👋
 
